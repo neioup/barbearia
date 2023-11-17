@@ -8,4 +8,4 @@ Fundada em 2019, a Barbearia Alura já é destaque na cidade e conquista novos c
 <p>Oferecemos profissionais experientes e antenados às mudanças no mundo da moda. 
 O atendimento possui padrão de excelência e agilidade, garantindo qualidade e satisfação dos nossos clientes.</p>
 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.vivadecora.com.br%2Frevista%2Fdecoracao-de-barbearia%2F&psig=AOvVaw3CFg82Y54fEzz2PDuMNZ01&ust=1700320057461000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCOj5uoGoy4IDFQAAAAAdAAAAABAD)
+![](https://cdn.awsli.com.br/600x450/401/401079/produto/72022274/161e8b0f82.jpg)
